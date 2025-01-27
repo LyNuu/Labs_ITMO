@@ -8,7 +8,7 @@ Feel free to dive into the materials and explore the different aspects of object
 
 
 
-
+## The conditions of laboratory works see below 👇
 
 
 
